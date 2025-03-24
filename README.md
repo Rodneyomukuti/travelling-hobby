@@ -14,7 +14,8 @@ While travelling, I enjoy doing the following:
 Here is a list of foodstuffs that I usually interact with while travelling
 1. Fried chicken **I am a vegetarian**
 2. Soft drinks
-3. Any other meal 😋
+3. Water
+4. Any other meal 😋
 
 
 
